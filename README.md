@@ -10,7 +10,7 @@
 
 - 📫 How to reach me **sandeepupadhyay1101999@gmail.com**
 
-- 📄 Know about my experiences [Resume](https://drive.google.com/file/d/1FsC-uTupPMFHa5JboFu1ej6adLEaomQC/view?usp=sharing)
+- 📄 Know about my experiences [Resume](https://drive.google.com/file/d/14NVYvK3CpCbgD63FH6ly1Tuxy25FEGtA/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
